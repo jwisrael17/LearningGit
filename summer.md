@@ -9,3 +9,5 @@
 * I have no clue
 ## Brandon Project
 * To be Seen
+## Summer plans
+* Do none of these and drop out and start a bakery
